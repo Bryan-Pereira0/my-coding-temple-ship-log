@@ -1,0 +1,1 @@
+If you point the compass north, the reading will show north.    Fascinating .
